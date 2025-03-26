@@ -1,7 +1,7 @@
 ---
 title: "¿Una Iglesia inmaculada? ¡María sabrá hacerlo!, Pbro. Joseph Iannuzzi & Luisa Piccarreta"
 thumb: "https://i.ytimg.com/vi/VB2zBVphyvg/hqdefault.jpg"
-tags: [TheFray2011]
+tags: [Joseph Iannuzzi]
 ---
 
  # 13 I ¿Una Iglesia inmaculada? ¡María sabrá hacerlo! I Pbro. Joseph Iannuzzi I Luisa Piccarreta 
