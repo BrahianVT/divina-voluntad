@@ -39,8 +39,8 @@ class SearchPosts {
     }
 
     const matchedPosts = this.posts.filter((post) => {
-      const postTitle = post.title.toLowerCase();
-
+      //const postTitle = post.title.toLowerCase();
+        const postTitle = post.templateContent.toLowerCase();
       return postTitle.indexOf(query) !== -1;
     });
 
