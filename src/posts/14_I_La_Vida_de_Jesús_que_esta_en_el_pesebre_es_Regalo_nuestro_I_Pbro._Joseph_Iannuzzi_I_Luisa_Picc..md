@@ -1,7 +1,7 @@
 ---
 title: "14 I La Vida de Jesús que esta en el pesebre es Regalo nuestro I Pbro. Joseph Iannuzzi I Luisa Picc."
 thumb: "https://i.ytimg.com/vi/86Rf9nqxHTY/hqdefault.jpg"
-tags: [Joseph iannuzzi]
+tags: [Joseph Iannuzzi]
 ---
 
  # 14 I La Vida de Jesús que esta en el pesebre es Regalo nuestro I Pbro. Joseph Iannuzzi I Luisa Picc. 

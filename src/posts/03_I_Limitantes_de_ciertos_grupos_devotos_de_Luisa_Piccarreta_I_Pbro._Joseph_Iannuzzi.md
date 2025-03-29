@@ -1,7 +1,7 @@
 ---
 title: "03 I Limitantes de ciertos grupos devotos de Luisa Piccarreta I Pbro. Joseph Iannuzzi"
 thumb: "https://i.ytimg.com/vi/-AOMGhRv8CU/hqdefault.jpg"
-tags: [Joseph iannuzzi]
+tags: [Joseph Iannuzzi]
 ---
 
  # 03 I Limitantes de ciertos grupos devotos de Luisa Piccarreta I Pbro. Joseph Iannuzzi 

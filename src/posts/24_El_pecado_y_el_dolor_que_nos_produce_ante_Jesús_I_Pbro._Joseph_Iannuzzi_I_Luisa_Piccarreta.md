@@ -1,7 +1,7 @@
 ---
 title: "24 El pecado y el dolor que nos produce ante Jesús I Pbro. Joseph Iannuzzi I Luisa Piccarreta"
 thumb: "https://i.ytimg.com/vi/bieUPMhoz4s/hqdefault.jpg"
-tags: [Joseph iannuzzi]
+tags: [Joseph Iannuzzi]
 ---
 
  # 24 El pecado y el dolor que nos produce ante Jesús I Pbro. Joseph Iannuzzi I Luisa Piccarreta 

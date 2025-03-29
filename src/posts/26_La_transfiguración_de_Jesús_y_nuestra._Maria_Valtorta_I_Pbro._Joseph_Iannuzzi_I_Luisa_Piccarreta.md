@@ -1,7 +1,7 @@
 ---
 title: "26 La transfiguración de Jesús y nuestra. Maria Valtorta I Pbro. Joseph Iannuzzi I Luisa Piccarreta"
 thumb: "https://i.ytimg.com/vi/UXEv20Q_H-0/hqdefault.jpg"
-tags: [Joseph iannuzzi]
+tags: [Joseph Iannuzzi]
 ---
 
  # 26 La transfiguración de Jesús y nuestra. Maria Valtorta I Pbro. Joseph Iannuzzi I Luisa Piccarreta 

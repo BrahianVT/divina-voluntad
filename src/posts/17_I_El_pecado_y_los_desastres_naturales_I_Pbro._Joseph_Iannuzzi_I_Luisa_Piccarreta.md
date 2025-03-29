@@ -1,7 +1,7 @@
 ---
 title: "17 I El pecado y los desastres naturales I Pbro. Joseph Iannuzzi I Luisa Piccarreta"
 thumb: "https://i.ytimg.com/vi/lqRy9a9AbNQ/hqdefault.jpg"
-tags: [Joseph iannuzzi]
+tags: [Joseph Iannuzzi]
 ---
 
  # 17 I El pecado y los desastres naturales I Pbro. Joseph Iannuzzi I Luisa Piccarreta 

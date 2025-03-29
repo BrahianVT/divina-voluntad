@@ -1,7 +1,7 @@
 ---
 title: "16 I Encuentros místicos y oración I Pbro. Joseph Iannuzzi I Luisa Piccarreta"
 thumb: "https://i.ytimg.com/vi/qJ_kGH0La_s/hqdefault.jpg"
-tags: [Joseph iannuzzi]
+tags: [Joseph Iannuzzi]
 ---
 
  # 16 I Encuentros místicos y oración I Pbro. Joseph Iannuzzi I Luisa Piccarreta 

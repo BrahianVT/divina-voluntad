@@ -1,7 +1,7 @@
 ---
 title: "05 I San Juan de la Cruz y Luisa Piccarreta I Pbro. Joseph Iannuzzi I Luisa Piccarreta"
 thumb: "https://i.ytimg.com/vi/3v7xZtDmn1I/hqdefault.jpg"
-tags: [Joseph iannuzzi]
+tags: [Joseph Iannuzzi]
 ---
 
  # 05 I San Juan de la Cruz y Luisa Piccarreta I Pbro. Joseph Iannuzzi I Luisa Piccarreta 

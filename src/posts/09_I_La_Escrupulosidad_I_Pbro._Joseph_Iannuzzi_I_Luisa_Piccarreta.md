@@ -1,7 +1,7 @@
 ---
 title: "09 I La Escrupulosidad I Pbro. Joseph Iannuzzi I Luisa Piccarreta"
 thumb: "https://i.ytimg.com/vi/Up6EVU2im0M/maxresdefault.jpg"
-tags: [Joseph iannuzzi]
+tags: [Joseph Iannuzzi]
 ---
 
  # 09 I La Escrupulosidad I Pbro. Joseph Iannuzzi I Luisa Piccarreta 

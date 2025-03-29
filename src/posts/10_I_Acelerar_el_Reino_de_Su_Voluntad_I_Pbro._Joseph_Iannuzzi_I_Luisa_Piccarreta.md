@@ -1,7 +1,7 @@
 ---
 title: "10 I Acelerar el Reino de Su Voluntad I Pbro. Joseph Iannuzzi I Luisa Piccarreta"
 thumb: "https://i.ytimg.com/vi/802qjvmbd_I/hqdefault.jpg"
-tags: [Joseph iannuzzi]
+tags: [Joseph Iannuzzi]
 ---
 
  # 10 I Acelerar el Reino de Su Voluntad I Pbro. Joseph Iannuzzi I Luisa Piccarreta 

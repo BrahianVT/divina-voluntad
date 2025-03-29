@@ -1,7 +1,7 @@
 ---
 title: "04 I Teología de la Morada Trinitaria I Pbro. Joseph Iannuzzi I Luisa Piccarreta"
 thumb: "https://i.ytimg.com/vi/Ei6pNkngjzA/hqdefault.jpg"
-tags: [Joseph iannuzzi]
+tags: [Joseph Iannuzzi]
 ---
 
  # 04 I Teología de la Morada Trinitaria I Pbro. Joseph Iannuzzi I Luisa Piccarreta 

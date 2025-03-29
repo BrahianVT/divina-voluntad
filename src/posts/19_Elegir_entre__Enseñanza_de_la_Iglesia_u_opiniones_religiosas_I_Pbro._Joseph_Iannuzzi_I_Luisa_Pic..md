@@ -1,7 +1,7 @@
 ---
 title: "19 Elegir entre, Enseñanza de la Iglesia u opiniones religiosas I Pbro. Joseph Iannuzzi I Luisa Pic."
 thumb: "https://i.ytimg.com/vi/1z-XO7de-cE/hqdefault.jpg"
-tags: [Joseph iannuzzi]
+tags: [Joseph Iannuzzi]
 ---
 
  # 19 Elegir entre, Enseñanza de la Iglesia u opiniones religiosas I Pbro. Joseph Iannuzzi I Luisa Pic. 

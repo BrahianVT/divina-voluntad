@@ -1,7 +1,7 @@
 ---
 title: "06 I Cómo el diablo ataca la profecía y el magisterio la protege I Pbro. Joseph Iannuzzi I Luisa P."
 thumb: "https://i.ytimg.com/vi/hz5MbEFBKIE/hqdefault.jpg"
-tags: [Joseph iannuzzi]
+tags: [Joseph Iannuzzi]
 ---
 
  # 06 I Cómo el diablo ataca la profecía y el magisterio la protege I Pbro. Joseph Iannuzzi I Luisa P. 

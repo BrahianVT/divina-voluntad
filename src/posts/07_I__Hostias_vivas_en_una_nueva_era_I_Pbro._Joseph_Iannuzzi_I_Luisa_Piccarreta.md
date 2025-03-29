@@ -1,7 +1,7 @@
 ---
 title: "07 I  Hostias vivas en una nueva era I Pbro. Joseph Iannuzzi I Luisa Piccarreta"
 thumb: "https://i.ytimg.com/vi/vqG2R2kfDh0/maxresdefault.jpg"
-tags: [Joseph iannuzzi]
+tags: [Joseph Iannuzzi]
 ---
 
  # 07 I  Hostias vivas en una nueva era I Pbro. Joseph Iannuzzi I Luisa Piccarreta 

@@ -1,7 +1,7 @@
 ---
 title: "11 I Y los que no son católicos, ¿Qué pasa con ellos? I Pbro. Joseph Iannuzzi I Luisa Piccarreta"
 thumb: "https://i.ytimg.com/vi/tph_jPm9UcU/hqdefault.jpg"
-tags: [Joseph iannuzzi]
+tags: [Joseph Iannuzzi]
 ---
 
  # 11 I Y los que no son católicos, ¿Qué pasa con ellos? I Pbro. Joseph Iannuzzi I Luisa Piccarreta 

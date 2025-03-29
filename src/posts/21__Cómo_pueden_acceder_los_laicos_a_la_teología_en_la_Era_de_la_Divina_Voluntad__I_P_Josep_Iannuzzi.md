@@ -1,7 +1,7 @@
 ---
 title: "21 ¿Cómo pueden acceder los laicos a la teología en la Era de la Divina Voluntad? I P Josep Iannuzzi"
 thumb: "https://i.ytimg.com/vi/fYuNFilLih0/hqdefault.jpg"
-tags: [Joseph iannuzzi]
+tags: [Joseph Iannuzzi]
 ---
 
  # 21 ¿Cómo pueden acceder los laicos a la teología en la Era de la Divina Voluntad? I P Josep Iannuzzi 

@@ -1,7 +1,7 @@
 ---
 title: "12 I La Novena de Navidad I Pbro. Joseph Iannuzzi I Luisa Piccarreta"
 thumb: "https://i.ytimg.com/vi/0ngiWOjSqJw/hqdefault.jpg"
-tags: [Joseph iannuzzi]
+tags: [Joseph Iannuzzi]
 ---
 
  # 12 I La Novena de Navidad I Pbro. Joseph Iannuzzi I Luisa Piccarreta 

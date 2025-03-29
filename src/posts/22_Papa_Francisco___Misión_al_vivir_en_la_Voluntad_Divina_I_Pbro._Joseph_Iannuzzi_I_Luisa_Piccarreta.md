@@ -1,7 +1,7 @@
 ---
 title: "22 Papa Francisco – Misión al vivir en la Voluntad Divina I Pbro. Joseph Iannuzzi I Luisa Piccarreta"
 thumb: "https://i.ytimg.com/vi/EwfQ3umtdj0/hqdefault.jpg"
-tags: [Joseph iannuzzi]
+tags: [Joseph Iannuzzi]
 ---
 
  # 22 Papa Francisco – Misión al vivir en la Voluntad Divina I Pbro. Joseph Iannuzzi I Luisa Piccarreta 

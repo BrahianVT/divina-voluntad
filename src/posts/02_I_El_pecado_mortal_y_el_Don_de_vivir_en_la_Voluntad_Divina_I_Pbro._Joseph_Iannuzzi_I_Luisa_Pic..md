@@ -1,7 +1,7 @@
 ---
 title: "02 I El pecado mortal y el Don de vivir en la Voluntad Divina I Pbro. Joseph Iannuzzi I Luisa Pic."
 thumb: "https://i.ytimg.com/vi/slNV3j8MTj8/maxresdefault.jpg"
-tags: [Joseph iannuzzi]
+tags: [Joseph Iannuzzi]
 ---
 
  # 02 I El pecado mortal y el Don de vivir en la Voluntad Divina I Pbro. Joseph Iannuzzi I Luisa Pic. 

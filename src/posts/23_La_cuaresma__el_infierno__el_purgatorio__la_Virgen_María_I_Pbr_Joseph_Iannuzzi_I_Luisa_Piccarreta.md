@@ -1,7 +1,7 @@
 ---
 title: "23 La cuaresma, el infierno, el purgatorio, la Virgen María I Pbr Joseph Iannuzzi I Luisa Piccarreta"
 thumb: "https://i.ytimg.com/vi/KJk_rlRfEWw/hqdefault.jpg"
-tags: [Joseph iannuzzi]
+tags: [Joseph Iannuzzi]
 ---
 
  # 23 La cuaresma, el infierno, el purgatorio, la Virgen María I Pbr Joseph Iannuzzi I Luisa Piccarreta 

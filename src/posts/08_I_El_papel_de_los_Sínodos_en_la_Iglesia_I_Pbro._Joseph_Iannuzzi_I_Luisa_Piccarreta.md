@@ -1,7 +1,7 @@
 ---
 title: "08 I El papel de los Sínodos en la Iglesia I Pbro. Joseph Iannuzzi I Luisa Piccarreta"
 thumb: "https://i.ytimg.com/vi_webp/TPnZM3ueMGk/maxresdefault.webp"
-tags: [Joseph iannuzzi]
+tags: [Joseph Iannuzzi]
 ---
 
  # 08 I El papel de los Sínodos en la Iglesia I Pbro. Joseph Iannuzzi I Luisa Piccarreta 

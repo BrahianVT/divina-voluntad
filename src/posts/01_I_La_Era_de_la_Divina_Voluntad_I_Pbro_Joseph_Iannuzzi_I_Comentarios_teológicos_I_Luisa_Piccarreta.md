@@ -1,7 +1,7 @@
 ---
 title: "01 I La Era de la Divina Voluntad I Pbro Joseph Iannuzzi I Comentarios teológicos I Luisa Piccarreta"
 thumb: "https://i.ytimg.com/vi/q4svgEKVofY/hqdefault.jpg"
-tags: [Joseph iannuzzi]
+tags: [Joseph Iannuzzi]
 ---
 
  # 01 I La Era de la Divina Voluntad I Pbro Joseph Iannuzzi I Comentarios teológicos I Luisa Piccarreta 
