@@ -1,7 +1,7 @@
 ---
 title: "28 La necesidad de los Escritos de Luisa en estos tiempos I Pbro. Joseph Iannuzzi I Luisa Piccarreta"
 thumb: "https://i.ytimg.com/vi/rd83a-7LQuA/hqdefault.jpg"
-tags: [Joseph iannuzzi]
+tags: [Joseph Iannuzzi]
 ---
 
  # La necesidad de los Escritos de Luisa en estos tiempos I Pbro. Joseph Iannuzzi I Luisa Piccarreta 
