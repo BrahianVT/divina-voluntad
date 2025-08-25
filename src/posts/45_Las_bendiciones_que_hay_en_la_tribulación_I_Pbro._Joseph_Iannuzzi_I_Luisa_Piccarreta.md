@@ -1,7 +1,7 @@
 ---
 title: "45 Las bendiciones que hay en la tribulación I Pbro. Joseph Iannuzzi I Luisa Piccarreta"
 thumb: "https://i.ytimg.com/vi/3yWHhwdHCug/hqdefault.jpg"
-tags: [TheFray2011]
+tags: [Joseph Iannuzzi]
 ---
 
  # 45 Las bendiciones que hay en la tribulación I Pbro. Joseph Iannuzzi I Luisa Piccarreta 
