@@ -1,7 +1,7 @@
 {
-  "name": "tips-ai",
+  "name": "Divina voluntad",
   "version": "2.0.1",
-  "description": "Interesting AI stuff",
+  "description": "Divina Voluntad",
   "type": "module",
   "scripts": {
     "start": "npm run serve",
