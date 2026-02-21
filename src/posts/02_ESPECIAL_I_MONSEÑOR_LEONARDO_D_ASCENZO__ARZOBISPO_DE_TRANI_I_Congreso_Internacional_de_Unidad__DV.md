@@ -1,0 +1,59 @@
+---
+title: "02 ESPECIAL I MONSEÑOR LEONARDO D’ASCENZO, ARZOBISPO DE TRANI I Congreso Internacional de Unidad, DV"
+thumb: "https://i.ytimg.com/vi/cV8n_QbMnk8/sddefault.jpg?v=69652dce"
+tags: [TheFray2011]
+---
+
+ # 02 ESPECIAL I MONSEÑOR LEONARDO D’ASCENZO, ARZOBISPO DE TRANI I Congreso Internacional de Unidad, DV 
+
+ <iframe width="560" height="315" src="https://www.youtube.com/embed/cV8n_QbMnk8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe> 
+
+ ## Content 
+
+
+[00:00:03](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=3.274s&t=3s) -> 00:00:26 : [música] Insertados en la Iglesia, obedientes como Luisa, religiosos, laicos, ministros [música] elegidos del Señor,  
+[00:00:25](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=24.89s&t=25s) -> 00:00:42 : [música] todos en unidad. en un solo [música] corazón. Cóo lo quiere Jesús en su divina  
+[00:00:39](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=38.645s&t=39s) -> 00:00:58 : [música] voluntad. Por la iglesia, [música] con la iglesia. En [música] la iglesia. [música]  
+[00:00:58](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=58.199s&t=58s) -> 00:01:21 : Por la iglesia, con la iglesia en la [música] iglesia como Luisa picareta. [música]  
+[00:01:28](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=87.799s&t=88s) -> 00:01:46 : Un saludo especial que nos ha enviado el arzobispo de Trani, monseñor Leonardo d'Acenso, con mucho cariño y será leído por el padre don Vincenzo Bovino, que viene de Italia, de Corato, justo de  
+[00:01:43](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=103.04s&t=103s) -> 00:01:59 : Corato, es el párroco de la Iglesia de Santa María Greca, donde está enterrada Luisa, saludo a los participantes del primer congreso internacional Unidad en la  
+[00:01:56](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=115.56s&t=116s) -> 00:02:11 : divina voluntad. Saludo con afecto a todos los presentes. Un saludo de corazón a todos, a su excelencia reverendísima, monseñor John Gerard Nunan, obispo de  
+[00:02:10](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=129.52s&t=130s) -> 00:02:25 : Orlando. A los presbíteros, a los consagrados, a las familias, a todos los laicos que participan en el primer congreso internacional en los Estados Unidos  
+[00:02:20](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=139.959s&t=140s) -> 00:02:38 : titulado Unidad en la divina voluntad. Saludo con gratitud a los organizadores del congreso y de manera especial a los esposos, los señores Jeff y Mary Circle, y a la señora Alejandra Acuña, a quien  
+[00:02:37](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=156.64s&t=157s) -> 00:02:55 : conocí con ocasión del encuentro realizado en Corato el pasado abril. Como decía en esa ocasión, el 2025 marca un aniversario importante, los 160 años del nacimiento de la sierva de Dios,  
+[00:02:52](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=172.239s&t=172s) -> 00:03:09 : Luisa Picarreta. Y es muy hermoso reunirse para reflexionar juntos sobre el tema de la unidad en la divina voluntad. Para nosotros los cristianos y para  
+[00:03:06](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=186.2s&t=186s) -> 00:03:24 : nosotros discípulos de Jesús, no hay tema más hermoso que el de la unidad, de la comunión, de ser una sola cosa al profesar nuestra fe, al vivir nuestra vida según los valores del evangelio,  
+[00:03:22](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=201.68s&t=202s) -> 00:03:35 : al dar testimonio de ello y en el deseo de caminar juntos. En la Iglesia, Sacramento de la Comunión con Dios y con toda la humanidad, estamos llamados con la ayuda de los  
+[00:03:34](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=213.56s&t=214s) -> 00:03:47 : sacramentos y sobre todo de la Eucaristía a vivir relaciones de comunión. La primera y necesaria condición para que podamos acoger lo que el Señor tiene  
+[00:03:45](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=224.68s&t=225s) -> 00:04:01 : en su corazón para nosotros, la divina voluntad es precisamente la comunión. Lo sabemos bien, sin la comunión no podemos ir a ninguna parte. que no podemos llamarnos ni ser iglesia.  
+[00:03:58](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=238.4s&t=238s) -> 00:04:11 : Sintámonos llamados a poner en práctica las palabras pronunciadas hace algunos años por el Papa Francisco, que queremos recordar. No desperdicien el tiempo precioso en  
+[00:04:10](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=249.92s&t=250s) -> 00:04:24 : chismes, desconfianzas y enfrentamientos. A veces en la iglesia, en nuestras comunidades también sucede esto. Por favor, decía el Papa Francisco, no  
+[00:04:21](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=261.16s&t=261s) -> 00:04:36 : desperdicien el tiempo. No podemos vivir bien el tiempo si no es construyendo comunión. Es necesario en nuestra vida, en nuestros grupos, en nuestras iglesias  
+[00:04:33](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=273.4s&t=273s) -> 00:04:51 : cultivar la espiritualidad de comunión y tener como método la sinodalidad. La espiritualidad es un concepto concreto. Indica la vida concreta, la de todos los días, animada por el Espíritu  
+[00:04:48](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=288.36s&t=288s) -> 00:05:07 : Santo. Esto significa que la vida solo puede ser vivida en comunión. Seguir a Jesús caminando juntos, juntos. Rezar, reflexionar, discernir, actuar.  
+[00:05:04](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=303.8s&t=304s) -> 00:05:20 : Todos juntos, obispos, presbíteros, consagrados, laicos, grupos, asociaciones. No hay caminos que se puedan recorrer en solitario.  
+[00:05:17](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=317.0s&t=317s) -> 00:05:32 : La comunión es condición necesaria para experimentar la presencia de Jesús y creer en él. Si no hay comunión entre nosotros, no podemos experimentar la presencia de  
+[00:05:29](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=328.68s&t=329s) -> 00:05:43 : Jesús y creer en él. Si no hay comunión entre nosotros, no podemos experimentar la presencia de Jesús. No es posible conocer a Jesús. No es  
+[00:05:40](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=340.12s&t=340s) -> 00:05:56 : posible creer en él. La comunión es necesaria. Donde dos o tres están reunidos en mi nombre, dijo Jesús, allí estoy yo en medio de ellos.  
+[00:05:54](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=354.12s&t=354s) -> 00:06:12 : Para hacer experiencia de Jesús, para creer en él, para dar testimonio de él. No necesitamos ante todo crecer en genialidad, inteligencia, estructuras, estrategias, cosas todas buenas.  
+[00:06:10](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=370.039s&t=370s) -> 00:06:25 : Sobre todo, necesitamos como condición irrenunciable crecer en comunión. Si realmente queremos transformar este tiempo de prueba que estamos viviendo, un tiempo muy hermoso en ciertos  
+[00:06:23](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=382.96s&t=383s) -> 00:06:36 : aspectos y al mismo tiempo en otros aspectos es un tiempo difícil. marcado por la violencia, por guerras luchadas con armas, guerras comerciales, guerras  
+[00:06:34](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=393.919s&t=394s) -> 00:06:46 : económicas, pero sentimos la llamada y el deseo de comprometernos a dar nuestra contribución para que la humanidad, el mundo, los  
+[00:06:44](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=404.16s&t=404s) -> 00:07:01 : ambientes en los que vivimos puedan construir comunión. Pidamos al Señor que nos ayude a sentir con fuerza el deseo de caminar juntos, poniendo cada uno de nosotros al  
+[00:06:56](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=416.479s&t=416s) -> 00:07:14 : servicio de todos en un proyecto común. Estas reflexiones son particularmente válidas en este tiempo en el que, como nos ha dicho el Papa Francisco, el camino de la sinodalidad, el camino que  
+[00:07:11](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=431.28s&t=431s) -> 00:07:28 : estamos llamados a vivir y recorrer juntos, es el camino que Dios espera de la iglesia del tercer milenio. De hecho, la sinodalidad es una dimensión constitutiva de la iglesia.  
+[00:07:26](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=445.599s&t=446s) -> 00:07:40 : Lo que el Señor nos pide en cierto sentido ya está todo contenido en la palabra sínodo, en el camino sinodal, que es este caminar juntos, un camino que el Papa  
+[00:07:37](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=457.199s&t=457s) -> 00:07:53 : Francisco ha querido de manera especial en este tiempo para la Iglesia y que todos nosotros pudiéramos vivirlo. La conversación en el espíritu que todos hemos aprendido a vivir nos ayuda a  
+[00:07:51](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=470.52s&t=471s) -> 00:08:06 : ponernos en actitud de escucha, en escucha recíproca entre nosotros para escuchar lo que el Espíritu Santo quiere comunicarnos. Es evidente que como iglesia, sin la  
+[00:08:03](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=483.12s&t=483s) -> 00:08:21 : escucha de los demás y del espíritu, no podemos construir el camino a seguir. Al respecto, el Papa León 14, con motivo del jubileo de los equipos sinodales y de los organismos de participación nos  
+[00:08:17](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=497.319s&t=497s) -> 00:08:33 : exhortó a todos diciendo en la Iglesia, antes de cualquier diferencia, estamos llamados a caminar juntos en la búsqueda de Dios para revestirnos de los sentimientos de Cristo.  
+[00:08:31](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=510.8s&t=511s) -> 00:08:45 : Esto nos ayudará ni a habitar con confianza y con un espíritu renovado. tensiones que atraviesan la vida de la Iglesia entre unidad y diversidad, tradición y novedad, autoridad y  
+[00:08:43](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=522.919s&t=523s) -> 00:08:59 : participación, dejando que el espíritu las transforme para que no se conviertan en enfrentamientos ideológicos y polarizaciones dañinas. No se trata de resolverlas reduciendo  
+[00:08:57](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=536.72s&t=537s) -> 00:09:10 : una a la otra, sino de dejar que el espíritu las fecunde para que sean armonizadas y orientadas hacia un discernimiento común.  
+[00:09:08](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=548.0s&t=548s) -> 00:09:23 : Solo a partir de esta modalidad de relación, de este estilo asimilado y practicado, podemos a través del discernimiento llegar a decisiones compartidas que son nuestra respuesta  
+[00:09:20](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=560.36s&t=560s) -> 00:09:35 : para vivir y realizar para vivir en la voluntad divina y continuar caminando juntos. Queridísimas y queridísimos, deseándoles que vivan estos días  
+[00:09:33](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=573.0s&t=573s) -> 00:09:52 : experimentando la belleza de ser una sola familia en la unidad de la divina voluntad, los saludo y los bendigo. Trani, 27 de octubre de 2025. Monseñor Leonardo d'Acenso, arzobispo de Trani,  
+[00:09:48](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=587.8s&t=588s) -> 00:10:17 : Barleta Viseglie, Italia. [música] Insertados en la Iglesia, obedientes como Luisa, religiosos, [música] laicos, ministros  
+[00:10:12](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=612.32s&t=612s) -> 00:10:31 : elegidos del Señor. Todos [música] en unidad, en un solo corazón. [música] Cómo lo quiere Jesús en su divina  
+[00:10:30](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=629.72s&t=630s) -> 00:10:45 : voluntad. [música] Por la iglesia, [música] con la iglesia. En [música] la iglesia.  
+[00:10:49](https://www.youtube.com/watch?v=cV8n_QbMnk8&t=648.72s&t=649s) -> 00:11:11 : Por la iglesia. Con la iglesia en la iglesia como Luisa picareta. [música]  
