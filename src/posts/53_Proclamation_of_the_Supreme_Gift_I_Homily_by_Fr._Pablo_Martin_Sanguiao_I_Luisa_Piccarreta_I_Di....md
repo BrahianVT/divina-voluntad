@@ -1,0 +1,116 @@
+---
+title: "53 Proclamation of the Supreme Gift I Homily by Fr. Pablo Martin Sanguiao I Luisa Piccarreta I Di..."
+thumb: "https://i.ytimg.com/vi/jM6obweqY6g/hqdefault.jpg?sqp=-oaymwEgCNACELwBSFXyq4qpAxIIARUAAIhCGAFwAcABBrgC9xg=&rs=AOn4CLBZZ6qNvWo4SAYNPqXStmVtHIPyOw"
+tags: [P. Pablo Martin Sanguiao]
+---
+
+ # 53 Proclamation of the Supreme Gift I Homily by Fr. Pablo Martin Sanguiao I Luisa Piccarreta I Di... 
+
+ <iframe width="560" height="315" src="https://www.youtube.com/embed/jM6obweqY6g" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe> 
+
+ ## Content 
+
+
+[00:00:08](https://www.youtube.com/watch?v=jM6obweqY6g&t=7.86s&t=8s) -> 00:00:30 : [música] Ángeles [música] toquen nuestra frente e impriman [música][canto] en ella la luz del Espíritu Santo santificado.  
+[00:00:36](https://www.youtube.com/watch?v=jM6obweqY6g&t=35.8s&t=36s) -> 00:00:48 : Con nuestra [canto] Iglesia Venga [canto] a nosotros [música]  
+[00:00:45](https://www.youtube.com/watch?v=jM6obweqY6g&t=45.08s&t=45s) -> 00:01:00 : tu reino. Venga tu reino [canto] a reinar. Vendra  
+[00:01:00](https://www.youtube.com/watch?v=jM6obweqY6g&t=59.56s&t=60s) -> 00:01:09 : tu [canto][música] reino a reinar. Vendra  
+[00:01:08](https://www.youtube.com/watch?v=jM6obweqY6g&t=68.12s&t=68s) -> 00:01:25 : [canto][música] tu reino a reinar. [canto] [música] [música]  
+[00:01:33](https://www.youtube.com/watch?v=jM6obweqY6g&t=93.44s&t=93s) -> 00:01:51 : En el nombre del Padre y del Hijo y del Espíritu Santo, amén. 12 de julio del 2026. Queridos hermanos, el Evangelio se propagó a partir del  
+[00:01:47](https://www.youtube.com/watch?v=jM6obweqY6g&t=106.68s&t=107s) -> 00:02:02 : primer anuncio dado por los apóstoles y así el reino de Dios se realiza a partir del anuncio del don supremo de su querer como vida. Hoy les pido una especial oración  
+[00:02:02](https://www.youtube.com/watch?v=jM6obweqY6g&t=121.831s&t=122s) -> 00:02:13 : [resoplido] por el fruto de un retiro sobre la divina voluntad que al final de este mes se tendrá en la capital del Congo.  
+[00:02:10](https://www.youtube.com/watch?v=jM6obweqY6g&t=130.28s&t=130s) -> 00:02:26 : Un retiro para sacerdotes. Se me ha dicho que participarán 84 sacerdotes y tres obispos. Me lo ha dicho un querido sacerdote de esa nación africana  
+[00:02:24](https://www.youtube.com/watch?v=jM6obweqY6g&t=143.92s&t=144s) -> 00:02:36 : que actualmente está en Roma y me ha pedido que prepare una presentación de este don supremo que Dios quiere darnos.  
+[00:02:34](https://www.youtube.com/watch?v=jM6obweqY6g&t=154.08s&t=154s) -> 00:02:51 : He sentido que este tema es lo mejor que puedo compartir con mis hermanos. Y para mí es siempre nuevo. Las verdades sobre la divina voluntad nunca acaban.  
+[00:02:47](https://www.youtube.com/watch?v=jM6obweqY6g&t=167.08s&t=167s) -> 00:03:04 : Como el Señor mismo dice, "Si yo quisiera trabajar toda una eternidad para manifestar una sola verdad sobre mi divina voluntad, no sería suficiente.  
+[00:03:02](https://www.youtube.com/watch?v=jM6obweqY6g&t=181.56s&t=182s) -> 00:03:15 : Porque el valor de una sola es tal y tan grande que si tú quisieras hacer una comparación y ver [música] lo que tiene más valor,  
+[00:03:11](https://www.youtube.com/watch?v=jM6obweqY6g&t=191.2s&t=191s) -> 00:03:28 : el cielo y sus estrellas, el sol, el mar, la tierra, más valor tiene un solo conocimiento mío que toda la creación junta. Porque mi conocimiento es de un valor  
+[00:03:26](https://www.youtube.com/watch?v=jM6obweqY6g&t=206.239s&t=206s) -> 00:03:42 : inmenso, infinito y sin límite. Y saliendo de nosotros, donde llega produce y multiplica al infinito el bien y la luz que contiene.  
+[00:03:38](https://www.youtube.com/watch?v=jM6obweqY6g&t=218.44s&t=218s) -> 00:03:54 : Es el verdadero regenerador de la vida divina. Mientras que la creación no tiene una capacidad inmensa y es limitada.  
+[00:03:52](https://www.youtube.com/watch?v=jM6obweqY6g&t=231.84s&t=232s) -> 00:04:06 : Para darnos una idea de que ocurre cuando nuestra voluntad se funde en la voluntad divina, pensemos cuando un sacerdote celebra la Santa Misa.  
+[00:04:04](https://www.youtube.com/watch?v=jM6obweqY6g&t=243.64s&t=244s) -> 00:04:18 : Sucede un gran milagro. Esa pequeña y ese poco vino en el cáliz, aunque conservan la apariencia, los accidentes del pan y del vino,  
+[00:04:16](https://www.youtube.com/watch?v=jM6obweqY6g&t=255.72s&t=256s) -> 00:04:32 : en realidad se transforman en la presencia viva y real de nuestro Señor. Pero para que eso ocurra, un instante antes sucede otro milagro, que al pronunciar las palabras de la  
+[00:04:30](https://www.youtube.com/watch?v=jM6obweqY6g&t=270.48s&t=270s) -> 00:04:46 : consagración, la voz es la del celebrante, pero es Jesucristo el que habla en él por medio suyo. De hecho, yo no digo las palabras que  
+[00:04:43](https://www.youtube.com/watch?v=jM6obweqY6g&t=282.84s&t=283s) -> 00:04:58 : Jesús dijo entonces, "Esto es el cuerpo de Cristo, esta es su sangre." No, sino que él es el que habla, "Esto es mi cuerpo, este es el cáliz de  
+[00:04:56](https://www.youtube.com/watch?v=jM6obweqY6g&t=296.28s&t=296s) -> 00:05:14 : mi sangre." En ese momento, el celebrante es una sola cosa con Jesús, aunque son dos personas distintas. O sea, la voluntad del sacerdote y la  
+[00:05:10](https://www.youtube.com/watch?v=jM6obweqY6g&t=310.44s&t=310s) -> 00:05:28 : voluntad del Señor se funden en un solo querer omnipotente que realiza el prodigio de la transubstanciación. Esa fusión del Señor con su sacerdote  
+[00:05:25](https://www.youtube.com/watch?v=jM6obweqY6g&t=325.36s&t=325s) -> 00:05:39 : debería ser no solo en ese momento de la Misa, sino [música] un estado de comunión continua, de forma que podamos decir, como San  
+[00:05:36](https://www.youtube.com/watch?v=jM6obweqY6g&t=336.2s&t=336s) -> 00:05:52 : Pablo, "Ya no soy yo el que vivo, [música] sino es Cristo el que vive en mí. Esta vida en la carne yo la vivo en la fe del Hijo de Dios que me ha amado y se  
+[00:05:48](https://www.youtube.com/watch?v=jM6obweqY6g&t=348.36s&t=348s) -> 00:06:03 : ha entregado él mismo por mí. Eso vale para todos. Como Jesús le dice a Luisa. En el volumen segundo. Hija mía, esta mañana quiero confo,  
+[00:06:01](https://www.youtube.com/watch?v=jM6obweqY6g&t=360.68s&t=361s) -> 00:06:16 : uniformarte toda a mí. Quiero que pienses con mi misma mente. Que mires con mis mismos ojos. Que escuches con mis mismos mismos oídos.  
+[00:06:13](https://www.youtube.com/watch?v=jM6obweqY6g&t=373.4s&t=373s) -> 00:06:27 : Que hables con mi misma lengua. Que obres con mis mismas manos. Que andes con mis mismos pies. [música] Y que me ames con mi mismo corazón.  
+[00:06:27](https://www.youtube.com/watch?v=jM6obweqY6g&t=387.24s&t=387s) -> 00:06:40 : Es necesario que Cristo viva en nosotros. No solo por estar en gracia. Que como dice el catecismo de la Iglesia Católica, es una participación en la  
+[00:06:38](https://www.youtube.com/watch?v=jM6obweqY6g&t=398.28s&t=398s) -> 00:06:52 : vida de Dios. Sino porque nuestra voluntad y la suya estén tan unidas. Identificadas. Que no se puedan distinguir.  
+[00:06:49](https://www.youtube.com/watch?v=jM6obweqY6g&t=409.48s&t=409s) -> 00:06:58 : Que no sea solo unión con él, sino unidad. [música] La unidad de un solo querer. Como Jesucristo.  
+[00:06:58](https://www.youtube.com/watch?v=jM6obweqY6g&t=417.894s&t=418s) -> 00:07:09 : [música] Que siendo verdadero Dios y verdadero hombre. Tiene dos voluntades. Una divina y la otra humana.  
+[00:07:06](https://www.youtube.com/watch?v=jM6obweqY6g&t=426.0s&t=426s) -> 00:07:16 : Pero un solo querer divino. Él no ha vivido dos vidas. [música] Unas veces como Dios y en otros momentos como hombre.  
+[00:07:16](https://www.youtube.com/watch?v=jM6obweqY6g&t=435.579s&t=436s) -> 00:07:27 : [resoplido] Sino una sola vida. Como lo que él es, el hombre Dios. Ese milagro no es solo hacer lo que Dios quiere o como él quiere.  
+[00:07:27](https://www.youtube.com/watch?v=jM6obweqY6g&t=446.715s&t=447s) -> 00:07:41 : [música] Sino es tener, poseer su voluntad. Como nuestra vida. No solo es existir como criaturas en la voluntad de Dios. Sino vivir en ella.  
+[00:07:39](https://www.youtube.com/watch?v=jM6obweqY6g&t=459.16s&t=459s) -> 00:07:53 : [música] Eso es el don supremo que Dios puede darnos, el don de sí mismo. Es la finalidad para la cual nos ha creado.  
+[00:07:51](https://www.youtube.com/watch?v=jM6obweqY6g&t=470.92s&t=471s) -> 00:08:06 : Es la finalidad de todo, de todas las obras de Dios, la creación, la redención, la santificación. A eso se refería el Señor cuando dijo a  
+[00:08:05](https://www.youtube.com/watch?v=jM6obweqY6g&t=484.6s&t=485s) -> 00:08:20 : la samaritana, "Si tú conocieras el don de Dios y quién es el que te dice, dame de beber, tú misma le habrías pedido y él te habría dado agua viva."  
+[00:08:18](https://www.youtube.com/watch?v=jM6obweqY6g&t=497.56s&t=498s) -> 00:08:38 : Es el centro de su ser divino. Es el don de la divina voluntad, que no es algo que Dios tiene como un atributo, sino lo que Dios es. Es la fuente de todo lo que Dios es, de  
+[00:08:34](https://www.youtube.com/watch?v=jM6obweqY6g&t=513.68s&t=514s) -> 00:08:51 : todo lo que tiene y de todo lo que hace. En Dios, la voluntad es el sustantivo, lo que es. Su querer es verbo, lo que hace. Y todos sus atributos son los adjetivos  
+[00:08:48](https://www.youtube.com/watch?v=jM6obweqY6g&t=527.88s&t=528s) -> 00:09:06 : que describen cómo es. Así, pensemos a una fuente de la que nace un río. Si en Dios, la fuente es su voluntad, lo que es, el río es su  
+[00:09:04](https://www.youtube.com/watch?v=jM6obweqY6g&t=543.839s&t=544s) -> 00:09:17 : querer, lo que hace. Pero ese río no es de agua, sino de amor, con todas sus características y cualidades.  
+[00:09:14](https://www.youtube.com/watch?v=jM6obweqY6g&t=554.0s&t=554s) -> 00:09:31 : Y ha querido que nosotros fuéramos a su imagen y semejanza. Nos ha dado una voluntad libre y responsable como la suya, dotada de libre albedrío,  
+[00:09:27](https://www.youtube.com/watch?v=jM6obweqY6g&t=567.44s&t=567s) -> 00:09:40 : para poder hacer lo mismo que él hace, para que para poder dársela a cambio [música]  
+[00:09:37](https://www.youtube.com/watch?v=jM6obweqY6g&t=576.76s&t=577s) -> 00:09:50 : de la suya y corresponder con amor divino a su amor divino. Así Dios había creado al hombre [música] como hijo de Dios,  
+[00:09:48](https://www.youtube.com/watch?v=jM6obweqY6g&t=587.8s&t=588s) -> 00:10:02 : no por naturaleza, sino por gracia. [música] Pero justamente le pidió que aceptara este don libremente.  
+[00:09:59](https://www.youtube.com/watch?v=jM6obweqY6g&t=598.72s&t=599s) -> 00:10:16 : Por eso era necesaria una prueba, porque al amor de quien da, de quien ofrece, debe corresponder el amor de quien recibe y acoge. Solo así se forma el puente que une las  
+[00:10:12](https://www.youtube.com/watch?v=jM6obweqY6g&t=612.32s&t=612s) -> 00:10:28 : dos orillas, la suya y la nuestra. [música] El amor pide respuesta de amor. En la última cena, Jesús dijo, "He deseado ardientemente  
+[00:10:26](https://www.youtube.com/watch?v=jM6obweqY6g&t=626.04s&t=626s) -> 00:10:42 : celebrar esta Pascua con vosotros antes de mi pasión, porque os digo que ya no la celebraré hasta que no se cumpla en el reino de Dios." Al deseo de Dios debe corresponder  
+[00:10:39](https://www.youtube.com/watch?v=jM6obweqY6g&t=639.16s&t=639s) -> 00:10:56 : nuestro deseo para que sean un mismo deseo, un solo querer divino y entonces se cumple. Pero ya sabemos cómo Adán no fue fiel en la prueba,  
+[00:10:52](https://www.youtube.com/watch?v=jM6obweqY6g&t=651.88s&t=652s) -> 00:11:08 : se enfrió su amor y se prefirió él mismo a Dios. Pecó y así provocó todas las consecuencias. Pero Dios no se echó atrás,  
+[00:11:05](https://www.youtube.com/watch?v=jM6obweqY6g&t=664.88s&t=665s) -> 00:11:18 : su proyecto eterno se ha de cumplir, su reino ha de venir, su voluntad se debe cumplir en la tierra [música] como en el cielo.  
+[00:11:15](https://www.youtube.com/watch?v=jM6obweqY6g&t=675.44s&t=675s) -> 00:11:29 : Con la oración del Padre Nuestro nos ha enseñado a desearlo y a pedirlo. Y cuando nuestro deseo y petición alcance la temperatura [música]  
+[00:11:26](https://www.youtube.com/watch?v=jM6obweqY6g&t=686.04s&t=686s) -> 00:11:40 : de su deseo ardiente, entonces se cumplirá. Así es como de nosotros depende acelerarlo o retrasarlo dentro de ciertos límites.  
+[00:11:38](https://www.youtube.com/watch?v=jM6obweqY6g&t=697.582s&t=698s) -> 00:11:52 : [música] Debemos tener ideas claras. Todo parte de la verdad. ¿Quién eres tú y quién soy yo? ¿Cuál es mi amor por ti y cuál es tu  
+[00:11:49](https://www.youtube.com/watch?v=jM6obweqY6g&t=709.36s&t=709s) -> 00:12:07 : correspondencia a mí? Y nuestra respuesta podría ser, por mí mismo yo soy nada, pero soy un fruto de tu amor eterno. Te debo todo, Dios mío.  
+[00:12:03](https://www.youtube.com/watch?v=jM6obweqY6g&t=723.04s&t=723s) -> 00:12:21 : Soy y quiero ser todo tuyo. Así Jesús quiere que también nosotros digamos como él al Padre, todo lo mío es tuyo y todo lo tuyo es mío.  
+[00:12:16](https://www.youtube.com/watch?v=jM6obweqY6g&t=735.68s&t=736s) -> 00:12:33 : Soy todo tuyo y tú eres todo mío. Por tanto, ¿quiénes somos nosotros? Le dice el Señor a Luisa [música] en el volumen segundo,  
+[00:12:31](https://www.youtube.com/watch?v=jM6obweqY6g&t=750.6s&t=751s) -> 00:12:49 : el favor más grande que puedo hacer a un alma es hacerle conocerse a sí misma. El conocimiento de sí y el conocimiento de Dios van a la par. En la medida que te conozcas a ti misma,  
+[00:12:46](https://www.youtube.com/watch?v=jM6obweqY6g&t=765.92s&t=766s) -> 00:13:01 : otro tanto conocerás a Dios. El alma que se ha conocido a sí misma, viendo que de por sí no puede hacer ningún bien, transforma esa sombra de su ser en Dios  
+[00:12:59](https://www.youtube.com/watch?v=jM6obweqY6g&t=778.52s&t=779s) -> 00:13:14 : y entonces hace en Dios todo lo que hace. Sucede que el alma está en Dios y con él camina, sin mirar, sin investigar, sin hablar,  
+[00:13:11](https://www.youtube.com/watch?v=jM6obweqY6g&t=791.44s&t=791s) -> 00:13:30 : en una palabra, como muerta, porque conociendo a fondo su nada, no se atreve a hacer nada por sí misma, sino que ciegamente sigue el impulso de lo que hace el Verbo.  
+[00:13:27](https://www.youtube.com/watch?v=jM6obweqY6g&t=806.76s&t=807s) -> 00:13:46 : Y dice San Juan en su primera carta qué gran amor nos ha tenido el Padre para que seamos llamados hijos de Dios y lo somos realmente. La razón por la que el mundo no nos  
+[00:13:41](https://www.youtube.com/watch?v=jM6obweqY6g&t=821.28s&t=821s) -> 00:13:54 : conoce es porque no lo ha conocido a él. Amadísimos, nosotros desde ahora somos hijos de Dios, pero lo que seremos aún no ha sido revelado.  
+[00:13:54](https://www.youtube.com/watch?v=jM6obweqY6g&t=833.824s&t=834s) -> 00:14:07 : [música] Lo que sabemos es este cuando él se manifieste, seremos semejantes a [música] él porque lo veremos como él es.  
+[00:14:05](https://www.youtube.com/watch?v=jM6obweqY6g&t=844.76s&t=845s) -> 00:14:20 : ¿Y qué es lo que anunciaba San Juan diciendo eso? Que todavía tenía que ser revelada la divina voluntad en cuanto vida interior de Jesús, o sea, [música]  
+[00:14:17](https://www.youtube.com/watch?v=jM6obweqY6g&t=856.64s&t=857s) -> 00:14:30 : el vivir en la divina voluntad para que sea nuestra vida [música] siguiendo el ejemplo y la doctrina espiritual de la sierva de Dios, Luisa  
+[00:14:27](https://www.youtube.com/watch?v=jM6obweqY6g&t=866.64s&t=867s) -> 00:14:39 : Piccarreta, mediante la cual en este tiempo histórico ha querido manifestarla. Entonces, ¿qué es vivir en la divina voluntad?  
+[00:14:38](https://www.youtube.com/watch?v=jM6obweqY6g&t=878.365s&t=878s) -> 00:14:51 : [música] Es tener como vida propia la misma voluntad de Dios, como se conoce mediante los escritos de Luisa Piccarreta.  
+[00:14:49](https://www.youtube.com/watch?v=jM6obweqY6g&t=888.56s&t=889s) -> 00:15:01 : Esa fue la vida interior de nuestro Señor Jesucristo [música] y de María Santísima, madre suya y nuestra.  
+[00:14:57](https://www.youtube.com/watch?v=jM6obweqY6g&t=896.8s&t=897s) -> 00:15:11 : Eso antes de Luisa no se conocía porque el Señor aún no lo había manifestado, aunque todo está en el Evangelio, en esperar el tiempo en que el árbol de  
+[00:15:10](https://www.youtube.com/watch?v=jM6obweqY6g&t=909.56s&t=910s) -> 00:15:21 : la Iglesia después de haber formado ramas, hojas y flores, [música] estuviera preparado para producir el  
+[00:15:18](https://www.youtube.com/watch?v=jM6obweqY6g&t=918.48s&t=918s) -> 00:15:34 : fruto. Solo entonces Jesús le habla a Luisa de su querer y le dice [música] que a nadie hasta ahora he manifestado.  
+[00:15:31](https://www.youtube.com/watch?v=jM6obweqY6g&t=930.52s&t=931s) -> 00:15:45 : Ojea cuantos libros quieras y verás que en ninguno encontrarás lo que a ti te he dicho sobre mi voluntad. Y ella puede decir las palabras del Señor  
+[00:15:43](https://www.youtube.com/watch?v=jM6obweqY6g&t=943.28s&t=943s) -> 00:15:56 : mi doctrina no es mía, [música] sino de aquel que me ha enviado. El que quiera hacer su voluntad reconocerá si esta doctrina viene de  
+[00:15:53](https://www.youtube.com/watch?v=jM6obweqY6g&t=952.6s&t=953s) -> 00:16:06 : Dios o si yo hablo por mi cuenta. [música] Y también estas otras palabras que Jesús dijo a los apóstoles yo tengo un alimento que vosotros no  
+[00:16:04](https://www.youtube.com/watch?v=jM6obweqY6g&t=964.0s&t=964s) -> 00:16:18 : conocéis. Mi alimento es hacer la voluntad de aquel que me ha enviado y dar cumplimiento a su obra. [música] ¿Y cuál es el don de Dios?  
+[00:16:16](https://www.youtube.com/watch?v=jM6obweqY6g&t=976.4s&t=976s) -> 00:16:31 : No es un don cualquiera. No es ni siquiera una cosa espiritual, sino su misma voluntad divina omnipotente, eterna, santísima.  
+[00:16:29](https://www.youtube.com/watch?v=jM6obweqY6g&t=988.72s&t=989s) -> 00:16:46 : Cumplir los mandamientos, hacer lo que Dios quiere, aceptar resignados y con paz lo que Dios [música] permite o dispone, todo eso es necesario para salvarnos,  
+[00:16:42](https://www.youtube.com/watch?v=jM6obweqY6g&t=1001.72s&t=1002s) -> 00:17:01 : pero es demasiado poco para su amor. Un canto popular dice Dios se hizo como nosotros para hacernos como él. Dios quiere que seamos [música] como él, a su semejanza.  
+[00:16:59](https://www.youtube.com/watch?v=jM6obweqY6g&t=1018.839s&t=1019s) -> 00:17:10 : Dios quiere que vivamos con él en perfecta [música] comunión de vida, que podamos decir las mismas palabras de Jesús  
+[00:17:07](https://www.youtube.com/watch?v=jM6obweqY6g&t=1027.28s&t=1027s) -> 00:17:23 : el que me ve a mí ha visto al Padre. ¿Cómo puedes decir muéstranos al Padre? ¿No crees que yo soy en el Padre y Y Padre es en mí? Las palabras que yo os digo no las digo  
+[00:17:19](https://www.youtube.com/watch?v=jM6obweqY6g&t=1039.48s&t=1039s) -> 00:17:36 : por mí, sino el padre que está conmigo cumple sus obras. Creedme, yo soy en el padre y el padre es en mí. Al menos creedlo por las obras.  
+[00:17:34](https://www.youtube.com/watch?v=jM6obweqY6g&t=1054.0s&t=1054s) -> 00:17:51 : En verdad, en verdad os digo, también el que cree en mí hará las obras que yo hago y las hará más grandes porque yo voy al padre. Dios quiere que amemos, que lo amemos  
+[00:17:49](https://www.youtube.com/watch?v=jM6obweqY6g&t=1069.08s&t=1069s) -> 00:18:03 : con su mismo amor para que no sea desproporcionada e injusta nuestra respuesta de amor. Por eso, sabiendo Dios que nuestro corazón,  
+[00:18:02](https://www.youtube.com/watch?v=jM6obweqY6g&t=1081.52s&t=1082s) -> 00:18:16 : nuestra voluntad, por sí solo no es capaz de amar de un modo divino, digno de Dios, ahora nos ofrece el don de su mismo corazón,  
+[00:18:14](https://www.youtube.com/watch?v=jM6obweqY6g&t=1093.88s&t=1094s) -> 00:18:32 : de su adorable voluntad, el corazón de las tres divinas personas, para que vivamos con Dios su vida, tomemos parte en sus obras, amemos como las divinas personas aman.  
+[00:18:30](https://www.youtube.com/watch?v=jM6obweqY6g&t=1109.88s&t=1110s) -> 00:18:42 : Eso es lo que la Iglesia pide desde hace 2,000 años. Venga tu reino, o sea, hágase tu voluntad así en la tierra como en el cielo.  
+[00:18:41](https://www.youtube.com/watch?v=jM6obweqY6g&t=1120.64s&t=1121s) -> 00:18:55 : Es decir, como es para el padre, así sea para sus hijos. Gloria al Padre y al Hijo y al Espíritu Santo, como era en el principio, ahora y  
+[00:18:53](https://www.youtube.com/watch?v=jM6obweqY6g&t=1132.64s&t=1133s) -> 00:19:17 : siempre y por los siglos de los siglos, amén. [música] [música] Una llamita giraba [música]  
+[00:19:15](https://www.youtube.com/watch?v=jM6obweqY6g&t=1154.68s&t=1155s) -> 00:19:38 : en torno a Jesús. [canto] En su cabeza se detenía. En su [canto] boca entraba y descendía. A su corazón. Giraba en torno a Jesús. Rezaba, suplicaba.  
+[00:19:35](https://www.youtube.com/watch?v=jM6obweqY6g&t=1175.4s&t=1175s) -> 00:19:57 : Y por todo reparaba. [canto] Por todo reparaba. Luisita [música] era esa llama. La llamita de Jesús. [música] Que giraba y giraba.  
+[00:19:53](https://www.youtube.com/watch?v=jM6obweqY6g&t=1193.44s&t=1193s) -> 00:20:10 : Y a Jesús [música][canto] deleitaba. Aunque era pequeña y frágil. Nunca se apagó su llama. Porque tomaba su luz.  
+[00:20:09](https://www.youtube.com/watch?v=jM6obweqY6g&t=1208.72s&t=1209s) -> 00:20:28 : Del fuego de Jesús. [canto] Tú también como Luisita. Puedes ser una llamita. [canto] La llamita de Jesús.  
+[00:20:30](https://www.youtube.com/watch?v=jM6obweqY6g&t=1230.16s&t=1230s) -> 00:20:57 : Pero tú también como Luisita. Puedes ser una llamita. [canto] Llamita de Jesús. [música] [música]  
+[00:21:02](https://www.youtube.com/watch?v=jM6obweqY6g&t=1261.544s&t=1262s) -> 00:21:17 : [música] Tú también como puede ser una llamita, [canto] la llamita [música] de Jesús.  
+[00:21:19](https://www.youtube.com/watch?v=jM6obweqY6g&t=1278.64s&t=1279s) -> 00:21:39 : Pero tú también [canto] como alicitas, puede [música] ser una llamita, [canto] llamita de Jesús. Puede ser una llamita, [canto][música] la llamita de Jesús.  
+[00:21:41](https://www.youtube.com/watch?v=jM6obweqY6g&t=1300.96s&t=1301s) -> 00:22:08 : La llamita de Jesús. Jesús. Jesús. La llamita de Jesús. [canto] La llamita de  
+[00:22:05](https://www.youtube.com/watch?v=jM6obweqY6g&t=1325.28s&t=1325s) -> 00:22:55 : Jesús. Jesús. [música] Ángeles [música] toquen nuestra frente e impriman  
+[00:22:51](https://www.youtube.com/watch?v=jM6obweqY6g&t=1371.48s&t=1371s) -> 00:23:15 : en [canto] ella la luz del Espíritu Santo, santificado. [música] [canto] Con nuestra  
+[00:23:12](https://www.youtube.com/watch?v=jM6obweqY6g&t=1392.08s&t=1392s) -> 00:23:32 : iglesia. [música] [canto] Venga tu reino [canto]  
+[00:23:29](https://www.youtube.com/watch?v=jM6obweqY6g&t=1408.96s&t=1409s) -> 00:23:45 : a reinar. Venga tu reino a reinar. Venga [canto]  
+[00:23:43](https://www.youtube.com/watch?v=jM6obweqY6g&t=1423.0s&t=1423s) -> 00:24:00 : tu reino a reinar. [canto] [música]  
